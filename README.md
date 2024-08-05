@@ -1,1 +1,1 @@
-👋 Hi, I’m entropylot
+👋 Hi, I’m Entropylot
